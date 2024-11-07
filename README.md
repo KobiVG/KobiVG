@@ -1,4 +1,4 @@
-# 👋 Sup, I’m @KobiVG aka goober
+# 👋 Sup, I’m @KobiVG aka Kobe Van Gestel
 
 ## Interests
 - 🌍 I’m interested in ...
